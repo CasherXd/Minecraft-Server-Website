@@ -1,0 +1,1 @@
+Merhaba arkadaşlar , bazı eksikleri vardı düzelttim şuandada eksikleri var rahatça kullanın ekleyin çıkarın bu website tamamen yabancıydı türkçeye çevirdim 1 2 yeri var düzeltmedigim okadar kolay gelsin şimdiden.
